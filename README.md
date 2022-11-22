@@ -1,5 +1,5 @@
 
-### Ola eu sou o alexandre silva santos, sou estudante de Ciêcias da Computção</div>💻
+### Oi eu sou o alexandre silva santos, sou estudante de Ciêcias da Computção</div>💻
 
 ##
 
